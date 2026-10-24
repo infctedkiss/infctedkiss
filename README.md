@@ -8,4 +8,4 @@
 ———————ㅤgenuinely feeling alone irl, taking longer breaks to recoverㅤ———————
 
 
-ㅤㅤㅤㅤㅤㅤㅤ——————— [dummy 1](https://github.com/TheSanctuaryOfYourShadows) ♡ [dummy 2](https://github.com/BIoodlust) ♡ [dummy 3](https://github.com/MYBRIGHTESTST4R)) ———————
+ㅤㅤㅤㅤㅤㅤㅤ——————— [dummy 1](https://github.com/TheSanctuaryOfYourShadows) ♡ [dummy 2](https://github.com/BIoodlust) ♡ [dummy 3](https://github.com/MYBRIGHTESTST4R) ———————
