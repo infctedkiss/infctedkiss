@@ -8,3 +8,5 @@
 
    ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀  ⠀   ![](https://komarev.com/ghpvc/?username=shinjuwerty&label=my+lovely+scars&color=green)
 
+
+<img width="580" height="370" alt="Image" src="https://github.com/user-attachments/assets/eb443dea-2ef1-4af6-a6fb-a4311c315b8c" />
