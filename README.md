@@ -6,5 +6,5 @@
 
    ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ I may easily get sensitive or offended
 
-   ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ![](https://komarev.com/ghpvc/?username=shinjuwerty&label=my+onis&color=green)
+   ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀  ⠀   ![](https://komarev.com/ghpvc/?username=shinjuwerty&label=my+lovely+scars&color=green)
 
